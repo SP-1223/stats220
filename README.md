@@ -14,7 +14,7 @@ My name is ***Jun Wai*** This is my repo for STATS 220.
 3. Gaming
 4. Read Novels
 
-The favourite website I like to visit is [War Thunder](https://warthunder.com/en/game/invite-friend)
+The favourite website I like to visit is [War Thunder](http://warthunder.com/en/registration?r=userinvite_147069436).
 
 A meme that captures how I currently feel about my university studies is
 
