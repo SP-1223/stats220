@@ -19,4 +19,4 @@ The favourite website I like to visit is [War Thunder](http://warthunder.com/en/
 A meme that captures how I currently feel about my university studies is
 
 ![](https://c.tenor.com/MGg0k3pcLWUAAAAC/chat-are.gif)
-https://www.instagram.com/finemelt/p/DFYaiXLS7s3/?img_index=1
+https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSnbTm7m9VPxrguRU55L7Fwx6G82R9zHO02jJc795zMhSCfd3GqYvGAtn2HDC8HQJEK8-8&usqp=CAU
